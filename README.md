@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Testerkaos
 - 👀 I’m interested in ... Sometimes Sports, Sometimes Computer
-- 🌱 I’m currently learning ... Malaysia
+- 🌱 I’m currently learning in ... Malaysia
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... Just here i'll guess
 - ⚡ Fun fact: ... ¯\_(ツ)_/¯
